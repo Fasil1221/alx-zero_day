@@ -1,1 +1,1 @@
-my choise of read me
+i chose to be happy
